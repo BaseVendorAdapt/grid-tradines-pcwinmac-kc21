@@ -1,4 +1,4 @@
-# 
+# Premium grid trading bot for futures extensions pour Mac OS | Avancé grid trading bot for futures extensions pour PC Windows. Avec ordres take-profit et gestion des clés privées — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
